@@ -7,10 +7,10 @@
 用爱发电！！！
 
 ## 最新地址：
-青桔网（新）：  
+青桔网（新）：<br>
 acg.qingjuacg.top  
 青桔网（旧）：<br>
-https://qingjuacg.top/     
+https://qingjuacg.top/
 https://qingju.eu.org/
 
 新网站有论坛功能，求助资源更方便，请畅所欲言吧！
