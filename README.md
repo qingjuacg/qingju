@@ -9,9 +9,9 @@
 ## 最新地址：
 青桔网（新）：  
 acg.qingjuacg.top  
-青桔网（旧）：  
+青桔网（旧）：<br>
 https://qingjuacg.top/     
-https://qingju.eu.org/    
+https://qingju.eu.org/
 
 新网站有论坛功能，求助资源更方便，请畅所欲言吧！
 请使用edge浏览器进入，手机版应用市场就有下
